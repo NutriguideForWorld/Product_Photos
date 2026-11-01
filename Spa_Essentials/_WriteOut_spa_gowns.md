@@ -3,4 +3,4 @@
 
 
 Competitors:
-https://nidy.in/shop/page/3/
+https://nidy.in/shop/page/3/   <= buy min. 20 pieces here
