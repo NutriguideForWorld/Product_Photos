@@ -4,3 +4,4 @@
 
 Competitors:
 https://nidy.in/shop/page/3/   <= buy min. 20 pieces here
+https://kaifu1688.en.alibaba.com/company_profile.html
