@@ -7,7 +7,16 @@ The provided image displays a collection of corporate compliance certifications 
 • FDA Fiscal Year Registration (Third Document): An official United States Food and Drug Administration (FDA) establishment registration certificate, showing the facility is registered to export medical or protective devices into the U.S. market.
 • ISO 9001:2015 Certification (Fourth Document): An internationally recognized standard issued by NQA (with UKAS accreditation) proving the company maintains a robust Quality Management System (QMS).
 • ISO 13485:2016 Certification (Fifth Document): A specialized quality management standard specifically for the medical device industry, ensuring the manufacturer maintains rigorous safety and quality controls during production.
-```
+
 Source:   Wuhan RanXin International Trade CO.,ltd
           https://www.ranxin-medical.com/products/Dailynecessities/lists_7_3.html
           
+
+
+💆‍♀️ Ideal for Spa, Salon & Wellness Services: Disposable spa gown for beauty and hygiene
+🧖‍♂️ Unisex Gown Fits Men and Women Comfortably: Non-woven salon gown for all body types
+🧼 Hygienic Protection During Facial & Hair Treatments: Salon gown for clean and safe procedures
+🪶 Soft, Lightweight & Skin-Friendly Fabric Design: Comfortable disposable gown for sensitive skin
+♻️ Single-Use, Easy to Wear & Dispose: Disposable beauty gown for professional hygiene care
+
+```
